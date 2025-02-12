@@ -27,7 +27,7 @@
 |--------------------|--------------------------------------------|---------------------------------|
 | 🔥 高质量全能工具箱 | https://t.me/nsfwcol_so | 🎉🎉推荐Telegram频道和群组导航合集      |
 | 🚀 每日免费节点       | [https://t.me/freevpntg](https://t.me/freevpntg) | 每日免费提供高速的VPN节点         |
-| 🔥 电报中文包       | [https://t.me/go2cn](https://t.me/go2cn) | 电报使用人数最多的中文包         |
+| 🔥 电报中文包       | [https://t.me/nsfwcol_so/114/115](https://t.me/nsfwcol_so/114/115) | 电报使用人数最多的中文包         |
 | 🔥 频道搬运        | [https://t.me/xiunvbanyun](https://t.me/xiunvbanyun) |   💰解放双手全自动搬运别的频道视频和内容，涨粉神器💰   |
 | 🔥 帮申请电报API        | [https://t.me/shenqingapi](https://t.me/shenqingapi) |   网络有问题找他可以帮忙代申请100%成功，5U或者是30块   |
 | 🔥 TG全能搜索        | [https://t.me/sesou20w](https://t.me/sesou20w) | 支持多种资源的强大搜索引擎      |
@@ -67,11 +67,6 @@
   <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹群发电报神器" style="width: 30%;"/>
 </div>
 
-### 会员 | 能量租赁机器人 【可找我代充36U/年，比机器人要便宜】
-| 名字     | 链接 | 功能描述     |
-| :---        |    :----:   |          :--- |
-| 电报会员自助开通机器人       |   [@kttgvip_bot](https://t.me/kttgvip_bot)  | 自动开通Telegram电报会员机器人，支持USDT、TRX、支付宝、微信等平台开通|
-| 能量租赁机器人      | [@trxgd_bot](https://t.me/trxgd_bot)       |一款全自动的能量租赁机器人 |
 
 ## Telegram iOS 苹果版 官方原生客户端进入限制群 (开车群) 的方法
 ![](https://i.imgur.com/Ba6epuD.png)
@@ -135,19 +130,6 @@ Telegram 汉化，解除 +86 限制和 IOS 进屏蔽群以及账号注销等教�
 | App title     | zhuanfabotsxxx                              |
 | Short name    | zhuanfabotsxxx                              |
 
-### Telegram钱包|虚拟信用卡
-| 名字     | 链接 | 功能描述     |
-| :---        |    :----:   |          :--- |
-| wallet       |   [@wallet](https://t.me/wallet)  | Telegram官方钱包，支持比特币、USDT和TON的应用内支付|
-| okpay      | [@OkayPayBot](https://t.me/OkayPayBot?start=creditCardInvite--6294881820)       |可用于店租（Amazon、Shopify、Shope等）、广告（Facebook、Google等）、云服务、游戏、开发者应用、海淘购物等全场景支付。|
-
-### Telegram空投
-| 项目      | 空投地址及说明                                                                                 | 领取条件                     |
-| --------- | --------------------------------------------------------------------------------------------- | ---------------------------- |
-| PAWS      | [https://t.me/PAWSOG_bot](https://t.me/PAWSOG_bot/PAWS?startapp=oswQUDfd)                     | 基本电报用户都有，领取数量不等 |
-| CATS      | [https://t.me/catsgang_bot](https://t.me/catsgang_bot/join?startapp=mrorvC6pDCl1rDGGTvjXd)     | 依据账号活跃度和年份发放      |
-| BLUM      | [https://t.me/blum/app](https://t.me/blum/app?startapp=ref_upb27LohdV)                        | 通过游戏和完成任务获取空投    |
-| NEBX.IO   | [https://nebx.io](https://nebx.io/login?v=99653959)                                            | 社交媒体任务（签到、关注等）  |
 
 ### 指纹多开浏览器【薅羊毛必备】
 | 项目      | 官网地址                                                                                 | 介绍                   |
@@ -155,14 +137,6 @@ Telegram 汉化，解除 +86 限制和 IOS 进屏蔽群以及账号注销等教�
 | AdsPower     | [https://www.adspower.net](https://share.adspower.net/j0nPEN)                     | 免费版本最多配置5个环境 |
 | MoreLogin      | [https://www.morelogin.com](https://www.morelogin.com/?from=AA1ADh2pdRLo)     | 免费2个环境，2个成员      |
 
-### 交易所提币
-
-| 名字     | 链接 | 功能描述     |
-| :---        |    :----:   |          :--- |
-| 币安    |   [https://accounts.binance.com](https://accounts.binance.com/zh-CN/register?ref=896983517)   |       币安交易所(持有bnb减免40%手续费)|
-| ByBit    |   [https://www.bybit.com/](https://www.bybit.com/invite?ref=4VLKDMW)   |      ByBit交易所(减免30%手续费)|
-| 火币    |   [https://www.htx.com](https://www.htx.com.de/zh-cn/v/register/double-invite/?invite_code=xpi6a223&inviter_id=11346560)   |      火币交易所(减免30%手续费)|
-| 欧易OKX    |   [https://www.okx.com](https://chouyi.info/join/50253981)   |      欧易交易所(减免30%手续费)|
 
 ### 虚拟货币机器人
 | **名称**       | **描述**               | **链接**                           |
