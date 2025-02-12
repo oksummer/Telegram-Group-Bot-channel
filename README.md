@@ -1,7 +1,3 @@
-<!--
- * @Description:
- * @telegram: @tghzsx_bot
--->
 ## 声明
 <div align="center">
 【电报推荐】10000+ 优质Telegram群组、Telegram频道推荐、频道和机器人，精心筛选，让您轻松玩转Telegram。
@@ -17,7 +13,6 @@
 电报中文昵称也就是汉字❗️请点击以下机器人免费领取USDT❗️<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
 (泰达币Tether),数量有限先到先得
 
-商务合作：[@tghzsx_bot](https://t.me/tghzsx_bot)
 
 </div>
 
@@ -26,7 +21,7 @@
 | :----------------------------------------------------------: | :----------------------------------------------------------: | :----------------------------------------------------------: |
 | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou?start=a_1005270991) | [![机场导航](https://i.imgur.com/yhw5VPW.png)<br/>机场导航大全](https://t.me/nsfwcol_so/182390) | [![彩虹群发破解版/飞机/电报Telegram tdata/低价TG账号/电报资源搜索](https://i.imgur.com/xff6d05.png)<br/>电报稀缺资源大全中文搜索](https://t.me/nsfwcol_so) |
 |                 <!-- END_REPLACE_SECTION -->                 |                                                              |                                                              |
-|                           </table>                           |                                                              |                                                              |
+|                           </table>                           |                                                              |                                   
 
 ### 推荐
 
