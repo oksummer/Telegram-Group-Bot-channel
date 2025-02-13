@@ -30,15 +30,15 @@
 | 🔥 电报中文包       | [https://t.me/nsfwcol_so/114/115](https://t.me/nsfwcol_so/114/115) | 电报使用人数最多的中文包         |
 | 🔥 频道搬运        | [https://t.me/xiunvbanyun](https://t.me/xiunvbanyun) |   💰解放双手全自动搬运别的频道视频和内容，涨粉神器💰   |
 | 🔥 帮申请电报API        | [https://t.me/shenqingapi](https://t.me/shenqingapi) |   网络有问题找他可以帮忙代申请100%成功，5U或者是30块   |
-| 🔥 TG全能搜索        | [https://t.me/sesou20w](https://t.me/sesou20w) | 支持多种资源的强大搜索引擎      |
+| 🔥 TG全能搜索        | [https://t.me/GToolBoxs/](https://t.me/GToolBoxs/) | 支持多种资源的强大搜索引擎      |
 | 🎥 电影搜索Pron      | [https://t.me/sepiansousuo](https://t.me/sepiansousuo) | 支持电影、资源的搜索功能      |
-| 🔥 极搜20万人搜索群   | [https://t.me/jisou200000](https://t.me/jisou200000) | 热门搜索群，涵盖多种资源       |
+| 🔥 极搜20万人搜索群   | [https://t.me/nsfwcol_so](https://t.me/nsfwcol_so) | 热门搜索群，涵盖多种资源       |
 | 🔥 资源搜索          | [https://t.me/resource4](https://t.me/resource4) | 提供多类型的资源搜索功能      |
 | 🔥 稀缺资源搜索      | [https://t.me/sosobo2](https://t.me/sosobo2) | 提供稀缺资源的专门搜索        |
 | 🔥 神马搜索         | [https://t.me/smss](https://t.me/smss?start=spread_7202424896)       | 提供快速资源搜索服务          |
 | 🔥 aiso中文搜索     | [https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)       | 中文资源搜索引擎             |
 | 🔥 哆啦A梦软件App| [https://t.me/dlamapp](https://t.me/dlamapp) | 各种软件、App和VPN破解资源    |
-| 🔥 NSFW| [https://github.com/telegrampron/telegram-nsfw](https://github.com/telegrampron/telegram-nsfw) | 电报极品频道，懂的都懂    |
+| 🔥 NSFW| [https://t.me/YouTubeNSFW](https://t.me/YouTubeNSFW) | 电报极品频道，懂的都懂    |
 | 🔥 色瓜中心| [https://t.me/seguazhongxin](https://t.me/seguazhongxin) | 分享全网第一热瓜|
 | 🔥 全网直播回放      | [https://t.me/luzhiob](https://t.me/luzhiob)   | 直播回放资源，涵盖抖音、斗鱼等  |
 | 🎥 阿里云盘4K高清资源  | [https://t.me/alidriver4k](https://t.me/alidriver4k) | 阿里云盘的4K高清资源分享      |
@@ -53,19 +53,6 @@
 | 🔞 全职宝妈         | [https://t.me/+AKqlE82RBJk0NmJh](https://t.me/+AKqlE82RBJk0NmJh) |      骗子|
 | 🔞 性瘾少女         | [https://t.me/+o5a3hQeuFg01MGRl](https://t.me/+o5a3hQeuFg01MGRl) |      骗子|
 
-### 机器人搭建有需要联系:[@banyunpindao](https://t.me/banyunpindao)
-| 项目                                       | 说明                                              | 价格            |
-| ------------------------------------------ | ------------------------------------------------- | --------------- |
-| 自动上传脚本                                | 提供源码及搭建服务，效果查看：[@dysyg](https://t.me/dysyg)          | 50U             |
-| 修女频道搬运                                | 搬运整个频道10U,自行联系[@banyunpindao](https://t.me/banyunpindao) | 10U   |
-| 自动转发频道机器人(涨粉神器)                          | 自动监听搬运别人频道内容,提供源码及搭建服务[@banyunpindao](https://t.me/banyunpindao) | 100U            |
-| 自动转发频道机器人（文末自定义文案）       | 自动搬运别人频道内容并可自定义文案，效果查看：[@alidriver4k](#) | 140U            |
-| 彩虹群发、强拉、炒群破解版(送便宜号商地址)                 | 软件下载地址:[网盘地址](https://pan.baidu.com/s/18NYmzhaSKx2x4KnfcAaqNg?pwd=u5vw),使用教程:[视频教程](https://www.youtube.com/watch?v=t09ZIz3k-i4),自助购买:[@autocaihongbot](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi) | ¥200             |
-<div style="display: flex; justify-content: space-between;">
-  <img src="https://i.imgur.com/9E65XRH.png" alt="彩虹群发器破解版免费" style="width: 30%;"/>
-  <img src="https://i.imgur.com/9MxAREe.png" alt="彩虹群发器破解版" style="width: 30%;"/>
-  <img src="https://i.imgur.com/o32jV8y.png" alt="彩虹群发电报神器" style="width: 30%;"/>
-</div>
 
 
 ## Telegram iOS 苹果版 官方原生客户端进入限制群 (开车群) 的方法
