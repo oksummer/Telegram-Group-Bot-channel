@@ -28,30 +28,12 @@
 | 🔥 高质量全能工具箱 | https://t.me/nsfwcol_so | 🎉🎉推荐Telegram频道和群组导航合集      |
 | 🚀 每日免费节点       | [https://t.me/freevpntg](https://t.me/freevpntg) | 每日免费提供高速的VPN节点         |
 | 🔥 电报中文包       | [https://t.me/nsfwcol_so/114/115](https://t.me/nsfwcol_so/114/115) | 电报使用人数最多的中文包         |
-| 🔥 频道搬运        | [https://t.me/xiunvbanyun](https://t.me/xiunvbanyun) |   💰解放双手全自动搬运别的频道视频和内容，涨粉神器💰   |
-| 🔥 帮申请电报API        | [https://t.me/shenqingapi](https://t.me/shenqingapi) |   网络有问题找他可以帮忙代申请100%成功，5U或者是30块   |
 | 🔥 TG全能搜索        | [https://t.me/GToolBoxs/](https://t.me/GToolBoxs/) | 支持多种资源的强大搜索引擎      |
-| 🎥 电影搜索Pron      | [https://t.me/sepiansousuo](https://t.me/sepiansousuo) | 支持电影、资源的搜索功能      |
 | 🔥 极搜20万人搜索群   | [https://t.me/nsfwcol_so](https://t.me/nsfwcol_so) | 热门搜索群，涵盖多种资源       |
-| 🔥 资源搜索          | [https://t.me/resource4](https://t.me/resource4) | 提供多类型的资源搜索功能      |
-| 🔥 稀缺资源搜索      | [https://t.me/sosobo2](https://t.me/sosobo2) | 提供稀缺资源的专门搜索        |
-| 🔥 神马搜索         | [https://t.me/smss](https://t.me/smss?start=spread_7202424896)       | 提供快速资源搜索服务          |
-| 🔥 aiso中文搜索     | [https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)       | 中文资源搜索引擎             |
+| 🔥 神马搜索         | [https://t.me/smss](https://t.me/smss?start=spread_1005270991)       | 提供快速资源搜索服务          |
+| 🔥 aiso中文搜索     | [https://t.me/aiso](https://t.me/aiso?start=telegram_1005270991)       | 中文资源搜索引擎             |
 | 🔥 哆啦A梦软件App| [https://t.me/dlamapp](https://t.me/dlamapp) | 各种软件、App和VPN破解资源    |
 | 🔥 NSFW| [https://t.me/YouTubeNSFW](https://t.me/YouTubeNSFW) | 电报极品频道，懂的都懂    |
-| 🔥 色瓜中心| [https://t.me/seguazhongxin](https://t.me/seguazhongxin) | 分享全网第一热瓜|
-| 🔥 全网直播回放      | [https://t.me/luzhiob](https://t.me/luzhiob)   | 直播回放资源，涵盖抖音、斗鱼等  |
-| 🎥 阿里云盘4K高清资源  | [https://t.me/alidriver4k](https://t.me/alidriver4k) | 阿里云盘的4K高清资源分享      |
-| 🔥 国内大流量卡       | [https://t.me/LiuLiangKa_2024](https://t.me/LiuLiangKa_2024) | 29元200G大流量卡信息         |
-| 🔥 奈飞小铺         | [https://ihezu.fans](https://ihezu.fans)     | 提供Spotify、网飞等平台的拼车服务 |
-| 🔥 环球巴士         | [https://universalbus.cn](https://universalbus.cn) | 全球一站式合租平台，支持多平台  |
-| 🔥 账号星球         | [https://www.accountboy.com](https://www.accountboy.com/?source=tggroup) | 苹果全球id，GPT/奈飞合租，海外社媒账号/邮箱  |
-| 🔞 推特女菩萨      | [https://t.me/+RSwm4w2RoUA4N2Nl](https://t.me/+RSwm4w2RoUA4N2Nl)  |  骗子    |
-| 🔞 女神聚集地       | [https://t.me/+d1li_2Da7JkyYmE0](https://t.me/+d1li_2Da7JkyYmE0) |    骗子  |
-| 🔞 不良少女         | [https://t.me/+DbLZRxZPuskyM2E0](https://t.me/+DbLZRxZPuskyM2E0) |      骗子|
-| 🔞 女大学生         | [https://t.me/+bP2C6wrFOjxkMTVk](https://t.me/+bP2C6wrFOjxkMTVk) |      骗子|
-| 🔞 全职宝妈         | [https://t.me/+AKqlE82RBJk0NmJh](https://t.me/+AKqlE82RBJk0NmJh) |      骗子|
-| 🔞 性瘾少女         | [https://t.me/+o5a3hQeuFg01MGRl](https://t.me/+o5a3hQeuFg01MGRl) |      骗子|
 
 
 
